@@ -1,2 +1,2 @@
-# Hello-World
-Hello World !!! My name is Joaquin Clervil popularly known as Joa'king. I'm very exited to be attending an Android Class.
+# Hello-World Hello World !!! My name is Joaquin Clervil popularly known as Joa'king. I'm living in Carrefour , I m single, I don't have any chirldren yet. I'm very exited to be attending an Android class.
+I was schooled at age 3, I did my primary school at college Victor Barolette, And my high shool at College St. Francois de Tours, and I did my vocational school at CETEMOH where I studied Computer science.
